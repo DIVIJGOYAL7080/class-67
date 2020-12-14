@@ -12,3 +12,8 @@ One day a rabbit was boasting about how fast he could run.
        All this time the turtle kept walking step by step by step.
         He never quit no matter how hot or tired he got. 
         He just kept going.
+
+
+However, the rabbit slept longer than he had thought and woke up.
+ He could not see the turtle anywhere! 
+ He went at full speed to the finish line but found the turtle there waiting for him.
